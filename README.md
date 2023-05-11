@@ -6,7 +6,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=ramkrishnaguin&label=Profile%20views&color=0e75b6&style=flat" alt="ramkrishnaguin" /> </p>
 
-- 👨‍💻 All of my projects are available at [linktr.ee/ramkrishnaguin](linktr.ee/ramkrishnaguin)
+- 👨‍💻 All of my projects are available at [https://linktr.ee/ramkrishnaguin](linktr.ee/ramkrishnaguin)
 
 - 📝 I regularly write articles on [https://www.qmansys.com/internet-of-things-security-issues-solutions/](https://www.qmansys.com/internet-of-things-security-issues-solutions/)
 
