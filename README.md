@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **ramkrishnaguin710@gmail.com**
 
-- 📄 Know about my experiences [[https://docs.google.com/document/d/1j3VmthtJHZnCTzL53U-w11q2iekP5SceJKimwHiuE4A/edit](https://docs.google.com/document/d/1j3VmthtJHZnCTzL53U-w11q2iekP5SceJKimwHiuE4A/edit](https://drive.google.com/file/d/1aTIj8pTXRvRNlMTr9_8SsDSdzcbg4K95/view?usp=drive_link))
+- 📄 Know about my experiences [https://docs.google.com/document/d/1j3VmthtJHZnCTzL53U-w11q2iekP5SceJKimwHiuE4A/edit](https://docs.google.com/document/d/1j3VmthtJHZnCTzL53U-w11q2iekP5SceJKimwHiuE4A/edit](https://drive.google.com/file/d/1aTIj8pTXRvRNlMTr9_8SsDSdzcbg4K95/view?usp=drive_link))
 
 - ⚡ Fun fact **I am funny**
 
